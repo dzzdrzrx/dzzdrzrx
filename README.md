@@ -1,3 +1,4 @@
 ## dzzdrzrx
-yes? makes web.app.etc why?
-
+hmm new try codes and test.
+i like html.
+fucking esay.
